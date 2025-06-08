@@ -24,7 +24,7 @@
 
 <p>Grazie ai nostri <strong>trucchi per Granny</strong>, non dovrai più preoccuparti di dover cercare una chiave o una munizione nei momenti più critici. Potrai esplorare ogni area della casa senza rischi, pianificare le tue strategie con calma e goderti l’avventura al massimo del suo potenziale.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Granny](https://tinyurl.com/tripdeigiochi)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Granny](https://tinyurl.com/manacontroller)** 🔴🔴
 
 <h2>Funzionalità principali dei trucchi per Granny</h2>
 
@@ -96,7 +96,7 @@
 
 <p>Ricorda: il nostro tool è gratuito, sicuro e semplicissimo da usare. Clicca ora sul pulsante qui sotto e prova tu stesso il potere delle risorse illimitate.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Granny](https://tinyurl.com/tripdeigiochi)** 🔴🔴
+# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Granny](https://tinyurl.com/manacontroller)** 🔴🔴
 
 <h2>Perché i trucchi per Granny fanno davvero la differenza: vantaggi reali e risparmio assicurato</h2>
 
